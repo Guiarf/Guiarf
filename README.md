@@ -1,6 +1,4 @@
-Como profissional multifacetado e empreendedor, lidero uma agência de marketing digital, tecnologia e consultoria, onde integro minhas habilidades como desenvolvedor full stack, product designer e estrategista digital. Sou apaixonado por criar soluções inovadoras que impulsionam o crescimento de negócios e transformam ideias em realidade.
-
-• Se você procura um profissional que une habilidades técnicas, visão estratégica e paixão pelo desenvolvimento humano, estou pronto para colaborar em projetos desafiadores e inovadores. Vamos transformar ideias em resultados extraordinários!
+Como profissional multifacetado e empreendedor, lidero uma empresa de marketing digital, tecnologia e consultoria, onde integro minhas principais habilidades como copywriter, gestor de tráfego, product designer, desenvolvedor full stack e estrategista digital. Sou apaixonado por criar soluções inovadoras que impulsionam o crescimento de negócios e transformam ideias em realidade. Além das minhas funções profissionais, sou um entusiasta do desenvolvimento de alta performance. Compartilho minha paixão e conhecimento para capacitar outros profissionais a atingirem seu potencial máximo.
 
 ##
 
