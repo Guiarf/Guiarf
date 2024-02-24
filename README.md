@@ -1,4 +1,4 @@
-Como profissional multifacetado e empreendedor, lidero uma empresa de marketing digital, tecnologia e consultoria, onde integro minhas principais habilidades como copywriter, gestor de tráfego, product designer, desenvolvedor full stack e estrategista digital. Sou apaixonado por criar soluções inovadoras que impulsionam o crescimento de negócios e transformam ideias em realidade. Além das minhas funções profissionais, sou um entusiasta do desenvolvimento de alta performance. Compartilho minha paixão e conhecimento para capacitar outros profissionais a atingirem seu potencial máximo.
+Busco oferecer soluções eficazes e personalizadas aos meus clientes. Minha jornada inclui a criação de websites otimizados, designs que buscam impactar visualmente e estratégias de marketing digital voltadas para resultados tangíveis. Com um compromisso com a qualidade e uma compreensão das necessidades do mercado, trabalho para garantir que cada projeto atenda às expectativas e necessidades específicas dos clientes, oferecendo um serviço dedicado e transparente. Estou disponível para colaborar de forma proativa e construtiva em projetos que visam o sucesso mútuo.
 
 ##
 
